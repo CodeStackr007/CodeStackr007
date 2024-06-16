@@ -1,6 +1,6 @@
 
 
-_👋 Hi, I'm @CodeStackr007 (John Prosper)_
+_👋🏾 Hi, I'm @CodeStackr007 (John Prosper)_
 
 _👀 I'm interested in:_
 
